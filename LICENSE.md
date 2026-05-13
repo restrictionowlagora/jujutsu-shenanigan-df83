@@ -1,4 +1,4 @@
-
+Get ahead in jujutsu shenanigans with jujutsu shenanigans automatic Scripts, featuring auto-heal and auto-sell. Download now to dominate every match with ease and confidence,
 
 
 
